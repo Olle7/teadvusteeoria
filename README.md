@@ -1,0 +1,1 @@
+teadvuse teaduslik kirjeldamine.
